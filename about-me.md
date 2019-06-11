@@ -2,7 +2,7 @@
 
 ![Picture of me]()
 
-Hi, I'm Charlene Bernard. I'm a ________ at *__________*.
+Hi, I'm Erica Evans. I'm a person at *USDS*.
 
 - **Past Companies and Organizations:**
 - **Hobbies:**
